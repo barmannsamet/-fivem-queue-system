@@ -1,1 +1,1 @@
-# -fivem-queue-system
+SAMET TARAFINDAN TÜKRÇELEŞTİRİLMİŞTİR
